@@ -1,2 +1,2 @@
 # shooter-diary
-Privacy Policy &amp; Terms for Shooter Diary
+Privacy Policy, Terms, &amp; Support for Shooter Diary
